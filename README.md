@@ -4,13 +4,13 @@
 
 <p align="left"> <img src="https://komarev.com/ghpvc/?username=vishnusoni2780&label=Profile%20views&color=0e75b6&style=flat" alt="vishnusoni2780" /> </p>
 
-- 🌱 I’m currently learning **Django, Java, React**
+- 🌱 I’m currently working as a Full Stack Developer in **Django, Flask, React**
 
-- 💬 Ask me about **Python, Django, SQL, Backend, Data Science, Java**
+- 💬 Ask me about **Python, Django/Flask, SQL, Data Science**
 
 - 📫 How to reach me **vishnusoni632@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1ALjtLMGDPNoyd3TbYo529ALCmdIt9v0L/view?usp=drive_link](https://drive.google.com/file/d/1ALjtLMGDPNoyd3TbYo529ALCmdIt9v0L/view?usp=drive_link)
+- 📄 Know about my experiences [https://drive.google.com/file/d/11vQzpQT8_6-_5wOn3mwZ6FzG8v9faL3F/view?usp=drive_link](https://drive.google.com/file/d/11vQzpQT8_6-_5wOn3mwZ6FzG8v9faL3F/view?usp=drive_link)
 
 - ⚡ Fun fact **I Came, Saw, Conquered.⚔️**
 
