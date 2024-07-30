@@ -10,7 +10,7 @@
 
 - 📫 How to reach me **vishnusoni632@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/11vQzpQT8_6-_5wOn3mwZ6FzG8v9faL3F/view?usp=drive_link](https://drive.google.com/file/d/11vQzpQT8_6-_5wOn3mwZ6FzG8v9faL3F/view?usp=drive_link)
+- 📄 Know about my experiences [https://drive.google.com/file/d/11vQzpQT8_6-_5wOn3mwZ6FzG8v9faL3F/view?usp=drive_link](https://drive.google.com/file/d/188h9hZDjcYU12iJ6PqWgBpr-eA65TxfT/view?usp=drive_link)
 
 - ⚡ Fun fact **I Came, Saw, Conquered.⚔️**
 
